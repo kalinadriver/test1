@@ -16,3 +16,20 @@ kalinadriver
      
      xc
       
+
+scsdv
+s
+vxc
+v
+xc
+v
+xcv
+xc
+v
+x
+v
+xv
+
+v
+
+dv
